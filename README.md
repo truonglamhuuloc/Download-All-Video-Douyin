@@ -1,4 +1,4 @@
-#HƯỚNG DẪN TẢI TẤT CẢ VIDEO TỪ DOUYIN - TIKTOK TRUNG QUỐC
+# HƯỚNG DẪN TẢI TẤT CẢ VIDEO TỪ DOUYIN - TIKTOK TRUNG QUỐC
 
 
 # KHÔNG hỗ trợ download video được tạo từ hình ảnh -> chỉ download nhạc

@@ -24,6 +24,4 @@
 -Xem quá trình trong bảng điều khiển;
 
 -Nếu có bất kỳ lỗi nào, hãy tạo Vấn đề!
-
-
-# Kênh Youtube của tôi: https://www.youtube.com/@hulodayne"
+Gmail: truonglamhuuloc@gmail.com
